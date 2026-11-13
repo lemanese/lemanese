@@ -4,7 +4,7 @@
 
 ![](https://komarev.com/ghpvc/?username=wandering-eye&label=helo&style=plastic&color=5c1717)
  
- <img src="https://i.postimg.cc/wM459Vsd/IMG-4071.jpg" width = "270">
+ <img src="https://i.postimg.cc/6qT8jyV6/IMG-7166.gif" width = "270">
 
 
 
